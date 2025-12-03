@@ -7,6 +7,7 @@
                                                                                           osdd-1b alter           )   ageless                               
                                                                                                                                   staticmoth & staticapple enjoyer 
                                                                                                                                  
+                      [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xct3n74cqi4ajbecswcog75sai&cover_image=true&theme=novatorem&show_offline=false&background_color=6880b1&interchange=false&profanity=false&bar_color=8f76ad&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ![](https://64.media.tumblr.com/87496d3538870213b2809fc8f749e9db/70f68352ef186324-ce/s1280x1920/22b1bd0a1c51c1dd5933cd7fa007f5ea2f9a5674.pnj)
 
